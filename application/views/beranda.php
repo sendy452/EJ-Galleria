@@ -1,0 +1,1 @@
+EJ-Galleria adalah tempat dimana pameran seni diselenggarakan secara online dan dapat dilihat secara online juga melalui website. Dengan adanya EJ-Galleria ini diharapkan untuk memudahkan masyarakat untuk melihat pameran seni secara online dalam bentuk website. Selain itu, anda juga dapat menjual karya seni anda ke dalam website EJ-Galleria ini.
